@@ -1,3 +1,6 @@
+![Alt text](https://media.licdn.com/dms/image/v2/D5616AQG1HUetlSqX9A/profile-displaybackgroundimage-shrink_350_1400/profile-displaybackgroundimage-shrink_350_1400/0/1710232835697?e=1733356800&v=beta&t=AugWz8OOa-9LqTn1nYH-Mbewh5gg7sgf4bYc1U3cCKY)
+
+
 # 💫 About Me:
 👨‍💻I'm Minhaz Ashraf<br>🤖 Software Developer<br>☁️ Ask me about development and coding<br>💪 Your dev friend <br>
 
